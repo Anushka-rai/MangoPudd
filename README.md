@@ -1,0 +1,1 @@
+It is summer season and there is a major supply of mangoes. Therefore the preparation of mango pudding can be very refreshing and it is also a very effective way to finish the mangoes before it rots out. mango pudding is a very easy and a very delicious desert for tehe summer season.
